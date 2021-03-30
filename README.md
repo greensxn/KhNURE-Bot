@@ -1,1 +1,1 @@
-Screenshots and more - https://greensxn.neocities.org/en/projects/bots/#KhNUREBot
+Screenshots and more details - https://greensxn.neocities.org/en/projects/bots/#KhNUREBot
